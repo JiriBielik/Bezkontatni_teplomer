@@ -1,0 +1,1 @@
+# Bezkontatni_teplomer
